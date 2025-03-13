@@ -4,4 +4,4 @@ This repository will be updated in the future. Similar pics for weapons n possib
 
 Also HSR, WuWa, ZZZ will be supported in the future
 
-Join my X to keep up with the news: https://x.com/_hiragara_
+Join my X to keep up with the news: x.com/_hiragara_
